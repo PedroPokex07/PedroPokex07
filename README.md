@@ -1,6 +1,6 @@
 **Boas Vindas** ao Meu Perfil
 
-- Estou **_Apaixonado_** ❤️
+- Estou **_Gostando_** de alguem ❤️
 - Me chamo Thomas Turbando
 - Estou aprendendo programação
 - Eu faria de **_tudo_** por uma **Pessoa** 🥰
