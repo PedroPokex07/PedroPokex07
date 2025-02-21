@@ -1,9 +1,7 @@
 **Boas Vindas** ao Meu Perfil
 
-- Estou **_Gostando_** de alguem ❤️
 - Me chamo Thomas Turbando
 - Estou aprendendo programação
-- Eu faria de **_tudo_** por uma **Pessoa** 🥰
 
 Click aqui👉 [You Tube](https://5coisas.org/como-clonar-cartao-credito/)
 
